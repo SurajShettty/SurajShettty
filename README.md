@@ -1,5 +1,7 @@
 # 💫 About Me:
 I'm a data analyst
+Reach out to me @surajshetty3392@gmail.com
+Checkout my resume here 
 
 
 ## 🌐 Socials:
